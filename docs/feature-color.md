@@ -1,1 +1,1 @@
-les couleurs seront situé ici
+les couleurs seront ici
